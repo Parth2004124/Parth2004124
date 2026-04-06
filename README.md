@@ -49,7 +49,7 @@
 
 ## 🌐 Connect With Me
 
-- 💼 LinkedIn: https://www.linkedin.com/in/parth-bhosale  
+- 💼 LinkedIn: https://www.linkedin.com/in/parth-bhosale-/  
 - 📺 YouTube: https://youtube.com/@paarthbhosale04  
 - 📧 Email: paarthbhosale04@gmail.com  
 - 👽 Reddit: https://reddit.com/user/Parth_Bhosale_04  
